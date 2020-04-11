@@ -1,0 +1,1 @@
+# tamagodo-fu.github.io
